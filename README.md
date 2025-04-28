@@ -8,12 +8,11 @@
 
 ## SOSMED & BLOGGER :
 
-* [INSTAGRAM](https://instagram.com/sumoonid)
+* [INSTAGRAM](https://instagram.com/offcncs)
 * [BLOGGER](https://offcncs.blogspot.com/)
-* [TELEGRAM](https://t.me/offcncs)
 * [SALURAN WHATSAPP](https://whatsapp.com/channel/0029VaA604P8PgsAClQgvf2O)
-* [TIKTOK](tiktok.com/@sumoonid86)
-* [BOT TELEGRAM](https://t.me/offcncs_bot)
+* [TIKTOK 01](tiktok.com/@offcncs)
+* [TIKTOK 02](tiktok.com/@offcncs)
 
 ## BROTHER TEAM :
 
